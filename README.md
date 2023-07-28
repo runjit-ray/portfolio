@@ -1,0 +1,2 @@
+Hey there! Check out my portfolio! It's got my best projects, articles, and presentations to show off my skills and creativity. You'll also get a quick intro about me and my goals. Don't miss my project section - I've got cool web development, Video Eiting and content creations work there. And if you want to know more about my skills and strengths, I've got that covered too. Hit me up if you have any questions or want to collaborate! Thanks for stopping by!# portfolio
+the professional portfolio
